@@ -13,7 +13,12 @@ Fresh spinach leaves or other sandwich toppings: lettuce, tomato slices, sprouts
 ## DIRECTIONS:
 Rinse and drain the chickpeas. Place on a paper towel and remove the outer skins. You can leave them on, but I like to remove them.
 In a medium bowl, using a fork or potato masher smash the chickpeas and avocado together. Add in cilantro, green onion, and lime juice. Season with salt and pepper, to taste.
+
 Spread salad on bread and top with your favorite sandwich toppings. I like to add fresh spinach leaves.
 Note: This salad also makes a great dip. Serve with cut up veggies, crackers, or pita chips. Also, this salad is best eaten the day it is made because it will turn brown due to the avocado.
 
 [cite](http://www.twopeasandtheirpod.com/smashed-chickpea-avocado-salad-sandwich/)
+
+## NOTES
+
+@runicfox: I used multigrain bread from Companion Bakery, and toasted it.  I topped mine with tomato and spinach, and used 2 pieces of sliced cheddar to help with sammie cohesion.  I will say that there isn't really a way to only make a half-batch of this.  I made 2 sammies, and still have maybe 60% of total filling.
